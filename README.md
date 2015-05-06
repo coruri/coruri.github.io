@@ -1,1 +1,1 @@
-# yoga-norikura.github.io
+# coruri.github.io
